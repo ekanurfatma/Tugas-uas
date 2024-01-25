@@ -1,2 +1,2 @@
 # Tugas-uas
-Kelompok : eka nurfatma
+Kelompok : eka nurfatma , wanda setiawan, sahmel
